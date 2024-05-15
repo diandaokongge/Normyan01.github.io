@@ -8,4 +8,4 @@
 
 换行换两行  
 否则加两个空格
-[名称](https://normyan01.github.io/极域毁灭者.bat)
+[点击此处](https://normyan01.github.io/极域毁灭者.bat)下载极域毁灭者
