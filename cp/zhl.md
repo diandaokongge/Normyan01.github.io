@@ -4,6 +4,7 @@
 ### 女1*Z* 闺蜜（女2）*H* 男1*L* 女主闺蜜*H* 
 ## 附：
 ### 本文仅记录三人一起的事
-### [点击此处](https://normyan01.github.io/cp/zhl/zl)
+### [点击此处](https://normyan01.github.io/cp/zhl/zl)查看Z和L
+### [点击此处](https://normyan01.github.io/cp/zhl/hl)查看H和L
 ## 正文：
 ### 正式承认（公开）于：2024.6.11 12:17左右
