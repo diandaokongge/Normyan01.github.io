@@ -6,6 +6,7 @@
 ### 本文仅记录三人一起的事
 ### [点击此处](https://normyan01.github.io/cp/zhl/zl)查看Z和L
 ### [点击此处](https://normyan01.github.io/cp/zhl/hl)查看H和L
+### [点击此处](https://normyan01.github.io/cp/zhl/zh)查看Z和H
 ## 正文：
 ### 正式承认（公开）于：2024.6.11 12:17左右
 ### 2024.6.12 H不承认，找各种离谱借口
