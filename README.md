@@ -1,7 +1,7 @@
 # Normyan01.github.io  
                   
 ## [点击此处](https://ddkg.top)**访问院长网站！！！**    
-  
+## [点击此处](https://bjjh201703.com)一个不太好的东西
 
 ### [点击此处](https://normyan01.github.io/极域毁灭者.bat) 下载极域毁灭者
 ### [点击此处](https://normyan01.github.io/mjh) 孟姜黄牌手杖折叠椅
